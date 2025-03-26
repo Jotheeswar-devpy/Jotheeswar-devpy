@@ -1,4 +1,4 @@
-Software & Hardware Engineer
+𝓢𝓸𝓯𝓽𝔀𝓪𝓻𝓮 & 𝓗𝓪𝓻𝓭𝔀𝓪𝓻𝓮 𝓔𝓷𝓰𝓲𝓷𝓮𝓮𝓻
 <img align="right" width="390" height="280" src="https://media.tenor.com/OD5DxnyUaLgAAAAM/galaxy-brain.gif">                                                 
 - 🌱 I’m currently learning Backend Development
 - 👯 I’m looking to collaborate on Web Projects
