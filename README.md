@@ -1,7 +1,7 @@
 📂𝓢𝓸𝓯𝓽𝔀𝓪𝓻𝓮 & 𝓗𝓪𝓻𝓭𝔀𝓪𝓻𝓮 𝓔𝓷𝓰𝓲𝓷𝓮𝓮𝓻
 <img align="right" width="390" height="280" src="https://media.tenor.com/OD5DxnyUaLgAAAAM/galaxy-brain.gif">                                                 
 - 🌱 𝓘’𝓶 𝓬𝓾𝓻𝓻𝓮𝓷𝓽𝓵𝔂 𝓵𝓮𝓪𝓻𝓷𝓲𝓷𝓰 𝓑𝓪𝓬𝓴𝓮𝓷𝓭 𝓓𝓮𝓿𝓮𝓵𝓸𝓹𝓶𝓮𝓷𝓽
-- 👯 I’m looking to collaborate on Web Projects
+- 👯 𝓘’𝓶 𝓵𝓸𝓸𝓴𝓲𝓷𝓰 𝓽𝓸 𝓬𝓸𝓵𝓵𝓪𝓫𝓸𝓻𝓪𝓽𝓮 𝓸𝓷 𝓦𝓮𝓫 𝓟𝓻𝓸𝓳𝓮𝓬𝓽𝓼
 - 🤔 𝓘’𝓶 𝓵𝓸𝓸𝓴𝓲𝓷𝓰 𝓯𝓸𝓻 𝓱𝓮𝓵𝓹 𝔀𝓲𝓽𝓱 𝓟𝓵𝓪𝓬𝓮𝓶𝓮𝓷𝓽𝓼 𝓲𝓷 𝓜𝓲𝓬𝓻𝓸𝓼𝓸𝓯𝓽
 - 💬 Ask me about anything
 - 📫 How to reach me :
